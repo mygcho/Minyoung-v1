@@ -1,1 +1,1 @@
-# -my-gcho-personal-website
+Minyoung-v1
